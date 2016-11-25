@@ -1,1 +1,2 @@
-йпюямшл ьпхтр ме дндекюмн
+
+The red color is not finished.
